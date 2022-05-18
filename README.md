@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Diva2011.
+- 👀 I’m interested in coding,drawing and travelling
+- 🌱 I’m currently learning coding from whitehatjr
+- 📫 To reach me mail at @divadasgupta11@gmail.com
